@@ -34,5 +34,5 @@
 - 🌐 [Facebook](https://www.facebook.com/rielvincent.22)  
 ---
 
-⭐️ From [leirrie(https://github.com/leirrie)
+⭐️ From leirrie (https://github.com/leirrie)
 

@@ -1,4 +1,4 @@
-# Mayng buntag👋 Ako si Rie1
+# Maayong Buntag!👋 Ako si Rie1
 
 🎓 **Student | Beginner in Programming | BSIT Student**
 
